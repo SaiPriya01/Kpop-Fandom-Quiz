@@ -4,3 +4,4 @@
 
 **I made a quiz on kpop music bands, play this quiz and share your feedback**
 
+**Have a great day, Thank you**
